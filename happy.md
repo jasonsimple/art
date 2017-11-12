@@ -111,6 +111,25 @@ Lesson 5：
 
 
 
-# Lesson
+# Lesson 6: 
 	Can we also create a powerful, positve situation to bring out the best in people?
 	Whether you think you can or can't, you are right.
+	
+# Lesson 6: optimism
+1. based on the power of the mind. 因为精神的力量
+2. Beliefs very often become self-fulfilling prophecies.(信念常常会成为自我实现的预言)：
+- motivation:(动力)
+- the motion of consisitency or congruence：The mind does not like when there is a discrepancy between what is inside and what is outside, the mind like when there is consistency, and if there is no congruence, then we experience a sense of dissidence, then we experience disease, Doesn't feel good, doesn't fell right and we do, very often, everything that we can to get the two on par again, Either by changing the external reality or by changing our mind to match the external reality , we don't like when there is inconsistency.(一致性或相合性:我们的精神不喜欢内部与外部存在差异，我们的精神喜欢两者一致相合，如果不相合，如果不一致，我们就会产生异议感，觉得不适，感觉不舒服，不对劲，所以我们常常不惜一切让两者统一,要么改变外部现实，要么改变自我思维以符合外部现实)
+4. Ways to create this consistency again:(重新创造新的一致性或相合性的方法)
+- update schema.(更新图式)
+- ignore or discard external information that doesn't match our schema.(忽视或抛弃不符合图式的外部信息)
+- activately seek confirmation.(我们主动寻求验证：我们会主动寻求信息，以支持我们的图式。)
+- create a new reality.(创造一个新现实)
+
+5. ways to interpret our performance:(解读自己表现的方法)
+- object interpretation(客观解读)
+- subjective interpretation based on my beliefs:(由信仰决定的主观解读：爱迪生灯泡实验，客观事实是失败了5000多次，主观解读是我成功了5000多次，证明了那些方法不可行)
+3. 
+
+	
+	
