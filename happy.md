@@ -129,7 +129,13 @@ Lesson 5：
 5. ways to interpret our performance:(解读自己表现的方法)
 - object interpretation(客观解读)
 - subjective interpretation based on my beliefs:(由信仰决定的主观解读：爱迪生灯泡实验，客观事实是失败了5000多次，主观解读是我成功了5000多次，证明了那些方法不可行)
-3. 
+3. 《适应力》：两周训练教孩子们更加乐观
+4. specify unrealistic belief：(辨别不现实的信念)
+- the Stockdale paradox：you must never confuse faith that you would prevail in the end which you can never afford to lose with the discipline to confront the most brutal facts of your current reality whatever they might be.(斯托克代尔悖论：你不能把坚信自己最终会在输不起的情形下取得胜利的信念同直面现有残酷现实的行为相混淆，无论是何种残酷现实)
+5. the graceful integration between high level of beliefs and connection to reality.(高水平信念和现实联系间的完美整合，maslow)：
+Even if we don't success we just bounce back up, the key thought is as much as possible to attain this balance.(即使没有成功，我们也能很快恢复动力，而关键就是尽可能地保持平衡)
+6. optimism, passion and hard work.(成功的必备三要素)
+7. why did very often parents and people who care about us lower our expectations?(为什么父母及亲人常常要降低我们的期望呢？)
+因为他们关心我们的快乐水平，他们关心我们的自尊，you see, there is a lot of belief...people believe that high expectations naturally lead to disappointment.因为有很多....人们相信，高期望自然地导致失望。
 
-	
-	
+8. When we fail after coping we realize that the actual pain that comes with failure is far less than the pain we imagine and that we associate with failure. I just got over it. Okay, so i didn't do well in here, but i got over it, whereas i imagine it in my mind i think it'll last forever.(我们在面对失败后会意识到，真正来自于失败的痛苦远小于我们想象的，我们认为与失败有关的痛苦，是的我在这件事上我没做好，但我克服了，但我一直在想的话，我就会认为它将一直持续。所以当我意识到实际上的痛苦比和失败有关的痛苦远远要小时，我变得更自信了，我能应付了，我实际上比自己想象中要更有适应力，我的自尊水平上升了，我的快乐水平上升了，也有更多的成功了。)
