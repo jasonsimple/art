@@ -111,6 +111,31 @@ Lesson 5：
 
 
 
-# Lesson
+# Lesson 6: 
 	Can we also create a powerful, positve situation to bring out the best in people?
 	Whether you think you can or can't, you are right.
+	
+# Lesson 6: optimism
+1. based on the power of the mind. 因为精神的力量
+2. Beliefs very often become self-fulfilling prophecies.(信念常常会成为自我实现的预言)：
+- motivation:(动力)
+- the motion of consisitency or congruence：The mind does not like when there is a discrepancy between what is inside and what is outside, the mind like when there is consistency, and if there is no congruence, then we experience a sense of dissidence, then we experience disease, Doesn't feel good, doesn't fell right and we do, very often, everything that we can to get the two on par again, Either by changing the external reality or by changing our mind to match the external reality , we don't like when there is inconsistency.(一致性或相合性:我们的精神不喜欢内部与外部存在差异，我们的精神喜欢两者一致相合，如果不相合，如果不一致，我们就会产生异议感，觉得不适，感觉不舒服，不对劲，所以我们常常不惜一切让两者统一,要么改变外部现实，要么改变自我思维以符合外部现实)
+4. Ways to create this consistency again:(重新创造新的一致性或相合性的方法)
+- update schema.(更新图式)
+- ignore or discard external information that doesn't match our schema.(忽视或抛弃不符合图式的外部信息)
+- activately seek confirmation.(我们主动寻求验证：我们会主动寻求信息，以支持我们的图式。)
+- create a new reality.(创造一个新现实)
+
+5. ways to interpret our performance:(解读自己表现的方法)
+- object interpretation(客观解读)
+- subjective interpretation based on my beliefs:(由信仰决定的主观解读：爱迪生灯泡实验，客观事实是失败了5000多次，主观解读是我成功了5000多次，证明了那些方法不可行)
+3. 《适应力》：两周训练教孩子们更加乐观
+4. specify unrealistic belief：(辨别不现实的信念)
+- the Stockdale paradox：you must never confuse faith that you would prevail in the end which you can never afford to lose with the discipline to confront the most brutal facts of your current reality whatever they might be.(斯托克代尔悖论：你不能把坚信自己最终会在输不起的情形下取得胜利的信念同直面现有残酷现实的行为相混淆，无论是何种残酷现实)
+5. the graceful integration between high level of beliefs and connection to reality.(高水平信念和现实联系间的完美整合，maslow)：
+Even if we don't success we just bounce back up, the key thought is as much as possible to attain this balance.(即使没有成功，我们也能很快恢复动力，而关键就是尽可能地保持平衡)
+6. optimism, passion and hard work.(成功的必备三要素)
+7. why did very often parents and people who care about us lower our expectations?(为什么父母及亲人常常要降低我们的期望呢？)
+因为他们关心我们的快乐水平，他们关心我们的自尊，you see, there is a lot of belief...people believe that high expectations naturally lead to disappointment.因为有很多....人们相信，高期望自然地导致失望。
+
+8. When we fail after coping we realize that the actual pain that comes with failure is far less than the pain we imagine and that we associate with failure. I just got over it. Okay, so i didn't do well in here, but i got over it, whereas i imagine it in my mind i think it'll last forever.(我们在面对失败后会意识到，真正来自于失败的痛苦远小于我们想象的，我们认为与失败有关的痛苦，是的我在这件事上我没做好，但我克服了，但我一直在想的话，我就会认为它将一直持续。所以当我意识到实际上的痛苦比和失败有关的痛苦远远要小时，我变得更自信了，我能应付了，我实际上比自己想象中要更有适应力，我的自尊水平上升了，我的快乐水平上升了，也有更多的成功了。)
