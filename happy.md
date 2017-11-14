@@ -153,4 +153,22 @@ Even if we don't success we just bounce back up, the key thought is as much as p
 * karen Reivich teaches these cognitive skills in two program(karen Reivich两周认知疗法训练)
 * 
 - 认识轴：Event→Evaluation(Thought)→Emotion
-- 归纳是人类的本能，但有时我们又做的过头，归纳过度了，例如我期中考试成绩很差，归纳为我不聪明，我不能成功，他的归纳就过度了， Evaluation过度了。
+- 
+###3Ms:the 3 traps of irrational thoughts.(非理性想法的三个陷阱)
+- the first one is magnifying《 it's exaggerating something that happens.(夸大发生的事情，例如：归纳是人类的本能，但有时我们又做的过头，归纳过度了，例如我期中考试成绩很差，归纳为我不聪明，我不能成功，他的归纳就过度了， Evaluation过度了。)
+- minimizing: the first idea of minimizing is what Karen Reivich calls tunnel vision (极小化，Karen Reivich 称之为“隧道视野”，这是我仍要警惕的陷阱:经常关注大部分中的极小部分，并以此评价整体，例如大部分学生都在认真听课，只有一个学生在睡觉，然而我的注意力全在这个学生身上，并以此评价我的课程枯燥，又或者是完美主义中特别关注极小的不完美。)
+- Making up or fabricating.(虚构、或称捏造不成立的理由，不要过度个人化，或过度责备)
+- emotional reasoning, the key is to get real.(情感推理：情感只是情感，不要把他与个人的现实联系起来,情感的关键是真实化（你嫉妒，并不证明你是个坏人，你害怕失败，并不证明失败是很危险的）)
+
+how do we get real through the questions that we ask ?(如何通过我们的提问变真实？)
+- my conclusion tied to reality?(我的结论和现实相关吗？)
+- Is that rational? (那合理吗？)
+- Am I ignoring something important?(我忽略了什么重要的事吗？)
+- what important evidences do i still need to take into consideration?(有什么重要的迹象是我需要考虑的？)
+- what am i magnifying? what am i minimizing?(我在夸大什么？我又在贬低什么？)
+
+##4. Focus(聚焦点)
+1. Ed Diener: It appears that the way people perceive the world is much more important to happiness than objective circumstances.It's much more dependent on our state of mind, on what we choose to focus on.(Ed Diener的研究发现，对幸福而言，人们感知世界的方式，比客观环境更重要,它更依赖于我们的思想状态，依赖于我们选择什么)
+2. we create reality.(现实由我们创造。)
+3. this class is not advocating focusing only on the positive, its focus is advocating reality.(本课程不是提倡只专注积极面，它专注于提倡现实)
+4. just remember, much of what we experience, we co-create.(只要记住，我们经历的大部分事情，我们参与创造)
