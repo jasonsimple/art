@@ -172,3 +172,9 @@ how do we get real through the questions that we ask ?(ÈçºÎÍ¨¹ıÎÒÃÇµÄÌáÎÊ±äÕæÊµ£
 2. we create reality.(ÏÖÊµÓÉÎÒÃÇ´´Ôì¡£)
 3. this class is not advocating focusing only on the positive, its focus is advocating reality.(±¾¿Î³Ì²»ÊÇÌá³«Ö»×¨×¢»ı¼«Ãæ£¬Ëü×¨×¢ÓÚÌá³«ÏÖÊµ)
 4. just remember, much of what we experience, we co-create.(Ö»Òª¼Ç×¡£¬ÎÒÃÇ¾­ÀúµÄ´ó²¿·ÖÊÂÇé£¬ÎÒÃÇ²ÎÓë´´Ôì)
+
+# Lesson 8: appreciate(¸Ğ¼¤)
+1. ĞŞÅ®ÊµÑé£ºÀÖ¹ÛµÄÈË¸ü³¤ÊÙ£¿
+2. Two questions:
+- since positive people live longer, then why people don't be happy?
+the answer is the media appears to broadcast unhappy things, the media does focus to  the great extent on the negative. the media doesn't just report reality as it is, it highlights certain aspects of reality, and there is a media bias involved, a bias toward the negative. the media focuses, highlights the negative, it acts as a magnifying glass rather than as a looking glass. we need to keep that in mind, and to correct for that(¼ÈÈ»ÀÖ¹ÛµÄÈË¸ü³¤ÊÙ£¬ÄÇÃ´ÈËÃÇÎªÊ²Ã´²»±äµÄ¸üÀÖ¹Û£¿¡ª¡ª´ğ°¸ÊÇ£ºÃ½ÌåÊÇ×ï¿ı»öÊ×£¬Ã½Ìå°Ñ´óÁ¿¹Ø×¢µã·ÅÔÚ¸ºÃæĞÂÎÅÉÏ£¬Ã½Ìå±¨µÀÊ±²¢²»ÊÇ¾ÍÊÂÂÛÊÂ£¬¶øÊÇµ¥¶ÀÇ¿µ÷ÊÂ¼şÖĞµÄÄ³¼¸¸ö·½Ãæ£¬Õâ¾ÍÊÇËùÎ½µÄÃ½ÌåÆ«¼û£¬Ò»ÖÖÇãÏòÓÚ¸ºÃæµÄÆ«¼û, Ã½Ìå¹Ø×¢¡¢Í»³öµÄÊÇ¸ºÃæ£¬Ëü¾ÍÏñÒ»Ãæ·Å´ó¾µ£¬¶ø²»ÊÇÑÛ¾¦£¬ÎÒÃÇĞèÒª¼Ç×¡Õâµã£¬²¢¶Ô´Ë¼ÓÒÔĞŞÕı)
