@@ -199,5 +199,23 @@ Tal, what i am going to tell you now is not going to make sense, but it's true, 
 # Lesson 9: posiive emotion.积极情绪
 1. They(children) don't take anything for granted. They see life as a miracle. You know, Emerson once said, "If the stars would shine once in a thousand years, we would all look up and praise the glory of this world. But because they shine every day, we take them for granted." For children, that dosen't exist. and part of the reason why it dosen't exist is that because they don't think automatically, conceptually. they think more perceptually, or sensually. and they remain connected to real.and we can do it simply by visualizing.(孩子们不把任何事视为理所当然，他们视为生命的奇迹，艾默生曾经说过，如果星星每千年闪烁一次，我们都会仰视赞美这个世界的美丽，但是因为他们每天都在闪烁，我们就将之视为理所当然。在孩子眼中不存在理所当然，其中一个原因是因为他们不会自动地概念性地思考，他们的思维是感知感性的,他们和现实保持联系。通过在脑海中想象，我们就能做到(William James大楼里的研究成果))
 2. The key is to do it, To just do it, there are no short cuts(关键是去做，亲力亲为，没有捷径。)
-3. 
+3. How we deal with painful and positive emotions? Sonja Lyubomirsky的研究
+研究：邀请参与者谈论和分享他们生活中最糟糕的经历和最好的经历，她把他们分成四组：
+连续3天，每天15分钟。
+- 第一组： 写出来，写出三方面，一是影响，也就是情感(emotion)；二是行为(behavior)，即你当时做了什么；三是认知，即你当时的想法。
+- 第二组：对着录音机说，讲述最好的经历。
+- 第三组：对着录音机说，讲述最糟糕的经历。
+- 第四组：只是去想(Just think about it)。
+观察他们身体和心理的健康状况，他们的情绪和有多快乐，结果如下：
+**写下、录下、想最糟糕的经历**
+- 写下最糟糕经历的人事实上感觉更好了，身体上也更健康；
+- 对着录音机说的人，在谈论之后感觉更好了；
+- 那些沉思的人，不去谈论，不去书写，他们感觉更糟了，一个月后身体状况也更糟；
+**写下、录下、想最快乐的经历**
+- 写下最快乐经历的人，趋势相反，一个月后，他们的身体和心理都感觉更糟；
+- 谈论影响、行为、认知三样的人，一个月后同样感觉更好，但身体状况更差；
+- 沉思他们的积极经历的人，一个月后感觉更好更健康。
+
+上述结果很出乎意料，已是他们继续做了第三项研究：
+there is a distinction between analyzing and replaying, when we analyze an experience, when we make sense of it, it helps. It actually helps. Painful experiences and negative experiences, which is why therapy helps. and what helps in therapy more than anything is are they empathic, In other words, are they good listeners? so when we feel like we can talk and analyze about painful emotion, we feel batter. we are physically healthier, When we simply sit down and ruminate about painful emotions without making sense of it, we get very often into a downward spiral. we narrow and constrict. we feel more sad. we narrow and constrict even more. and so on and so on, In contrast, we are not sure why, when we analyze a positive experience, really analyze it, try to understand why it happened and so on, It actually dosen't help. we don't understand why. But maybe it's because it takes all the fun spontaneity from the experience. However when we just ruminate about the positive experience, just think about it, then it contributes to our well-being. The gratitude exercise is about replaying the expericence. It's exactly that. In other words, It's thinking about our happiest experiences of the day which leads ultimately to positive outcome. so what is it saying about the permission to be human?  How is it different? Because the permission to be human is also very much related to being happier and healthier in the long term, well here's the difference:with the permission to be human, we give ourselves the permission to experience the emotions, for as long as necessary, and then we ask ourselves:"so what would be the most effective way to act now? ", and one of the most effective way to act would be to share that experience. one of the most effective way to act would be to just write in our journal. Daily active acceptance. Not just ruminating and staying there with this painful emotion. (分析和重现之间是有区别的，当我们分析一次经历时，当我们理清它时，它真的有帮助，痛苦的经历和消极的经历，所以心理治疗才有帮助，心理治疗中最重要的是他们的感同身受，换言之，他们是不是好的聆听者？当我们觉得可以谈论或者分析痛苦情绪时，我们感觉更好，身体更健康，当我们只是坐下来，沉思痛苦的情绪却不去理清它时，我们经常进入下行螺旋，我们收窄压缩，感觉更悲哀，然后进一步收窄压缩，循环往复。相反的，虽然不清楚原因，当我们分析积极的经历时，真正地分析它，尝试理解为什么会发生等等，它确实没有帮助，我们不明白为什么，但也许是因为让我们回忆起经历的快乐之处，但当我们只是沉思积极经历时，只是想也会提升我们的幸福感，感激修习就是重播快乐经历，就是如此，换言之，就是说回想最快乐的日子，能自动导致积极的结果，那么准许为人说的是什么？有什么区别？因为准许为人也是为了实现长期的快乐和健康，区别是这样的：准许为人，我们准许自己感受各种情绪，只要有必要，然后我们自问：“现在最有效的行动是什么？”，最有效的行动之一是去分享那次经历，最有效的行动之一是写日记，接受每天的行为，不要苦苦沉思痛苦的情绪，)
 
