@@ -253,4 +253,108 @@ there is a distinction between analyzing and replaying, when we analyze an exper
 13. And i tought about something that Churchill said, which was 'find opportunity in difficulty', So i looked for the opportunity. and here it was an opportunity handed to me in a pink shirt to be more in touch with my feminine side. But the key is to attain optimum levels of discomfort, and why? there is no other way to change, Nothing will happen, unless we bring about real actual behavioral change, and when we do that, then the sky is the limit.(然后我就想到了丘吉尔说过的一句话，“在逆境中寻找转机”，于是我一直在寻找转机，现在转机来了，就在这件粉色衬衫上，让我找到自己女性化的一面，关键是要达到最适度的不适感，为什么呢？想要改变，别无他法，什么也不会发生的，除非我们有真正的实质的行为改变，当我们做到这一点的时候，天高任鸟飞。)
 14 Bandura's work on self-efficacy:Nothing breeds success like success, when they succeeded, they did well, they saw themselves doing well——self-perception theory. Certain conclusions about who they are, what they are and that led to an upward spiral, and continued that upward spiral. Yeah, we talked about 'fake it till we make it',Chapters of the Fathers. pirkei Avot. One of the seminal Jewish texts:'Those whose deeds exceed their wisdom, their wisdom shall endure, but those whose wisdom exceeds their deeds, their wisdom shall not endure.'(Bandura自我效能的研究：没有比成功本身对成功更好的催化剂，当他们成功时，做的很好时，他们能看到自己做的很好——自我知觉理论，关于对自我的认识和感知，使他们进入良性循环，并且保持这个良性循环，我们)
 
-	
+#Lesson 12 Write daily(写日记)
+1. Jamie Pennebaker's experience:what he did was bringing participants and have them do the following: on 4 consecutive days that they came in, each day, they would spend 15 minutes- that's all, 15 minutes time for writing about the most difficult experiences, now they knew that no one would see it, or if they would see it, it would be without a name- completely confidential. so they were really able to treat it as their own journal. And here was the instructions that theses participants got. "Write continuously about the most upsetting or traumatic experience of your entire life. Don't worry about grammar, spelling , or sentence structure. In your writing, I want you to discuss your deepest thoughts and feelings about the experience. you can write about anything you want. But whatever you choose, It should be something that has affected you very deeply. Ideally, it should be about something you have not talked about with others in detail. It is critical, however, that let yourself go and touch those deepest emotions and thoughts that you have. In other words, write about what happened and how you felt about it, and how you feel about it now. Finally, you can write on different traumas during each session or the same one over the entire study. your choice of trauma for each session is entirely up to you." simple instructions. pretty straight-forward.if you notice, you see the ABCs in it, so it says "write about what happened", which is the behavior essentially. write about your deepest feelings- your affect, your emotions. and write about your thought and analyze it. and the control group just wrote about anything that they wanted to write about.so when he did this study, initially the results came in, one of the first things he looked at was the anxiety level, so when the results came in, disappointment. In fact, thinking of stopping the study, because he found the control group, their Anxiety show no change over time, the intervention group, the experimental group, after 4 days of writing about their most traumatic, most difficult experiences ,They started at the same point, They were randomly divided. and then a rise in their anxiety, after each of the days and during the 4 days, rise in their levels of anxiety.At the highest point, he was thinking terminating the study- very disappointed. Because he got from personal experience that he knew that journaling helps him and knew other people who talk about it, who swear by journaling, But then, once the 4 days are over, during the fifth, especially starting 6th, 7th and on days, this is what starts to happen. their anxiety levels went down. learning that they reach the same level as before, they continue to go down. and the most important thing is that they stabilized below the previous level. They stabilized below the previous levels of anxiety, when he followed these participants over a longer period of time up to a year. 4 times, 15 minutes- that's total of an hour. That's very little. and long lasting results. After writing about their deepest traumas, They became more outgoing, less repressed, less suppressed. Now why is that? We talked about it often that positive emotions and painful emotions flow through the same pipeline, And if we suppress something, if we stop something, which is painful, we are very often indirectly, inadvertently also suppressing the positive emotions, whereas here they open up, quite literally open up and allow these emotions to flow through them, they are essentially opening up a clogged channel, a clogged channel through which emotions, painful as well as positive emotions normally flow, and they experience higher levels of happiness. they are more open, more generous, as we saw also when you do the gratitude exercise. There were gender differences.(德州大学Jamie Pennebaker 的实验：他选了一些参与者，并让他们做以下的事情：连续四天，每天都用15分钟的时间，就15分钟来写下最难忘的经历，他们知道其实没人会看的，或者就算被人看到了，这些日记也是匿名的，绝对保密，所以完全可以看成他们的私人日记，以下就是他们得到的指示：“连续写下你一生中最难过或最痛苦的经历，不必在意语法、拼写或句子结构，在日记中，我希望你能谈谈你对这经历的最深刻的想法和感受，写什么都行，但不管你选什么，都必须是对你有着深刻影响的，最好是一些你从未怎么跟别人讲过的事，其实挺难得，因为敞开了心扉，去触碰那些你内心深处的感情和思想，换句话说，就算写下你的经历和以前的感想，以及现在对它的看法如何，最后， 你可以每次都写不同的痛苦经历，也可以整个研究过程都写同一个经历，每次你可以选择任何想写的痛苦经历。” 很简单的做法，很直接，如果有留心，就知道当中包含了ABC三个要素，它包含了“写出发生的事”，也就是行为，写下你的深刻感受，收到的影响以及你的情感，写下你的想法并分析它。他还有一个对照组，对照组的成员只是写下他们想写的东西。他做了这项研究后，最初结果出来了，他首先看到的是焦虑水平，因此看到结果时，他失望了，事实上，他考虑要不要停止这项研究，因为这就是他的研究所得，随着时间的推移，对照组的焦虑水平没有改变，而干预组，实验组的成员，经过四天，写下他们最痛苦、最难过的经历后--他们的起点一样，当初分组是随机分配的，他们的焦虑水平竟呈现上升趋势，每天这么写，在这四天内，他们的焦虑水平上升了，到了最高点时，他考虑终止研究，因为非常失望，因为他自己觉得写日记对他有帮助，而也有其他说过这一观点，但是四天之后，从第五天开始，尤其是第六天、第七天之后，奇怪的事发生了，他们的焦虑水平降低了，达到了原来的水平，还持续下降，最重要的是，在原来的水平之下保持稳定，在原来的焦虑水平之下保持稳定，他密切留意着这些参加者一段很长的时间，长达一年。四次，15分钟，足足一小时，时间很短，效果是持续的。在他们记下最深刻伤痛后，他们变得更外向，不那么压抑和忧郁了，为什么会这样呢？我们说过积极情感和痛苦情感都来自同一个输送通道，如果我们抑制着某些事情，或停止一些痛苦的事，我们常常会间接地、同时无意中抑制一些积极的情感，只要他们随时敞开心胸，让这些情绪尽情流露，那他们其实是打开了一条闭塞的通道，一条各种情绪，包括痛苦和积极情绪流通的通道，他们也能体验到更高层次的快乐，他们会更阳光，更慷慨，就像我们做感恩练习时所得的结果一样。)
+2. which is interesting, Now both sexes benefited from it, However, men benefited more than women, think about it, why do you think that is? It makes sense, if you think about it, because women have, generally speaking again, (women open up more, they speak more with their girl friends. they have closer friends and they talk about issues.  Men still in our culture today are much more close because it's not cool to open up. It's not cool to give yourself the permission to be human, especially when others are listening, so women generally in their lives have more supports  than men, but still, even women who have strong supports systems still benefit from this exercise, which reminds me of another result of a study, I mentioned months ago, the beginning of the course, which said women generally, again these are all averages, but in general, women, or rather men benefit more from marriage than women. for similar reason. Because women already have the supports system in place. Men, very often, for the first time they are with someone, who they feel comfortably enough opening up to. again, both males and females benefit from a long-term relationship, but men generally tend to benefit more than women.(接上段：有趣的是，会有性别差异，男女都从中受益（写日记），但男士比女士受益的更多，试想一下，为什么会这样，仔细想想，其实不无道理，受益的女士，状况大大改善，但男士受益更多，为什么？因为一般来说，女士敞开的更多，他们和女伴谈得更多，他们有密友，并对他们倾诉一切，而在今天的文化中，男士还是比较保守，因为找人倾诉有点没面子，准许自己为人，不是一件很酷的事，尤其是有其他人在旁时，因此，在生活中，女士们比男士们更容易获得支持，但是尽管如此，拥有强大支持的女士，仍能从这项练习中获益，这让我想起另一项研究的结果，我几个月前提到过，在课程开始时，提到一般来说，男人在婚姻中比女人受益更多，类似的原因，因为女士们原来就有支持系统，而男人，通常这是他们第一次遇到一个让他们觉得能安心倾诉的人，同样，尽管男女都在长期的恋爱关系中获益，但还是男士受益比女士多，)
+3. Laura King, a student of pennebaker, took the exact opposite approach and said:"Let's study to see what happens when the individuals write about their most intensive positive experience." what she did specifically was taking the instructions from Abraham Maslow's work on peak experience. and here are the instructions: Once again, this was three times, 15 minutes, so 45 minutes total on three consecutive days. Think of the most wonderful experience or experiences in your life, happiest moments, ecstatic moments, moments of rapture, perhaps from being in love, or from listening to music, or suddenly 'being hit', by a book or painting or from some great creative moment. choose one such experience or moment. Try to imagine yourself at that moment, including all the feelings and emotions associated with the experience. Now write about the experience in as much detail as possible, try to include the feelings, thoughts, and emotions that were present at the time. please try your best to re-experience the emotions involved. Essentially the exact opposite of Pennebaker. Results? Identical, Those who wrote about their peak experiences, their best experiences visit doctors less, in other words, it strengthened their physiological immune system, and experienced more happiness. so both psychological and physiological results. " Now when you look at this, some of you may be thinking that "well, what about the Lyubomirsky study? That said when you write about positive emotions. Actually you feel worse. whereas you write about negative emotions, you do feel better as Pennebaker suggested. Here's the difference. The instructions that Laura King gave were mostly about describing and re-experiencing, replaying your experience. It wasn't about analyzing "why did it happen", "how did it ", it was rather how it happen, in other words, replaying it. When the instructions and this is the Lyubomirsky study, were analyze the experience:why it happened, how did you get there and so on and so on. That's why it had the negative consequences over time, but just replaying the experience, just writing about how wonderful it is, re-experiencing emotionally what that was actually let you benefit.( Laura King的实验： Laura King 是 pennebaker 的学生，用相反的方法来做这项研究，她说：“我们来研究一下，看当人们写下最快乐的经历时会有怎么样的结果”，她的做法明确地根据 Abraham Maslow 关于巅峰经验的研究. 以下就是做法，三次，每次15分钟，连续三天，总共45分钟，想出生命中最精彩的经历，或多次美好的经历，快乐，兴奋的时刻，或坠入爱河极度欢喜的时刻，或者听音乐的欢快时刻，或突然发现一本好书或好画或突然灵感乍现，选择其中一个这样的时刻，想象自己正经历着一时刻，沉浸在所有与这一经历相关的感受和情感中，尽量详细地写下这一次经历，尽量写下感受和想法及当时产生的情感，尽量尝试重新经历那些情感。这个做法和Pennebaker 的做法相反，结果呢？完全一样，那些写下他们巅峰经验的人，写下最快乐经历的人，去看医生的次数少了，就是说，这个做法增强了他们的身体免疫系统，让他们体验更多快乐，不论心理还是身体上都得到同样的效果。现在来看，你们有些人可能会想，那Lyubomirsky的研究呢？那项研究表示，当你写下积极情感时，其实你感觉更糟，而写下负面情感，都会如Pennebaker所说，感觉会好些，不同之处在于，Laura King 的做法主要是描述和重新体验，重现你的经历，而不是分析“怎么会发生这种情况”，而是它的发生过程，就是重现，而Lyubomirsky的研究是分析这种经历，为什么会发生，你为什么会遇上之类的，这就是为什么随着时间推移，会产生负面的效果，但至少重现经历，只写下这次经历有多美好，重新体验当时的情感，实际上会让你受益。)
+4. 写日记，分析痛苦的经历能让人减轻焦虑感，重现美好的经历能让人更快乐。
+5. Why are there such remarkable benefits to journaling?(为什么写日记能产生如此显著的好处？)
+Let's understand the process,the mechanism.So there are a few things that are at play here.One of the things for example with positive emotions is that when you are replaying it,you are simply, you are fortifying the neural pathways. You replay,you imagine it again, and you make it more likely to happen again. Just like when you have a river, remember the analogy from two weeks ago,you have a river, and the more water go through it,then the wider it becomes, and then the more water is likely to go into it. That's self-reinforcing nature of change.So the first thing, the first reason why writing especially about painful emotions, but not just painful emotions, the reason why it helps is because of tension. We talked about ironic processing- Daniel Wegner's work from here, when we suppress unnatural phenomenon,it often intensifies. Be it thinking about a pink elephant, or be it suppressing painful emotions. And when we give ourselves the permission to be human, we are much more likely to release it,to let go, which is why therapy helps,which is why sharing with friends, opening up helps,which is why journaling helps. This is the whole idea of suppression or repression. The second thing that Pennebaker talks about is coherence. One of the things that he finds is that the individuals who benefit most,and he analyzes the test, confidentially of course,but he analyzes the test. Individuals who benefit most from the study are once introduced a lot of insight words,or insight phrases, meaning by the third day,they are all writing "now I see that" or "I understand that". or "it just dawned on me that" or "I realize that". Those who have many of these words or phrases in their writings are the ones who benefited the most. In other words, they've created a sense of coherence out of the experience. They make sense out of something perhaps before that was senseless. In other words,they created a story around their experiences. It's no longer dispersed,disjointed,disconnected data. Now it is a coherent whole.It's a story. Now I can deal with it. And if you think about it,what do people mostly remember? People mostly remember stories. Why? Because you remember a story, because it's one unit- it's a whole. The exact same here. We want to feel that our lives have a sense of coherence that we can make sense of them. Pennebaker: "An artifact of our ambiguous and unpredictable world is the anxiety of not attaining completion and not understanding a simple cause-and-effect explanation
+for traumatic disturbances. Alas,we naturally search for meaning and the completion of events; it gives us a sense of control and predictability over our lives." Again,that's why therapy helps, because we create coherence out of experience. This is why there was far less post-traumatic stress disorder after the Holocaust after there was the Vietnam war. Because after the Holocaust,they spoke about these experiences. They created a story around it,a tragic one, but still there was a sense of coherence,as opposed to Vietnam,where there was just random flashes of experiences without giving themselves permission,or without society, in many ways,giving them the permission to open up and to create a story out of it that they could hand, they could grasp.
+
+
+(我们来理解一下这个过程 当中的原理，现在有几件事情在这里起作用，例如你带着积极情感，在回想其中一次经历，你其实是在增强神经通路，你再次重现、想象它，让它像重新发生一样，就像你面前有条河，记得两周前的类推法吗，你面前有条河，流过的水越多 它就变得越宽阔，然后越来越多水流进去，这是变化的本质：自我实现。因此，为什么写下，尤其是痛苦情感，但也不只是痛苦情感，之所以有所帮助是因为紧张感。我们之前讲过Daniel Wegner的"反语处理"，而他谈到，当我们抑制非自然现象时，通常会适得其反，比如想像一头粉红色的大象，或抑制痛苦的情感，当我们准许自己为人，我们都倾向于释放感情、放开心胸，这就是治疗产生作用的原因，就是为什么和朋友分享、与人倾诉以及写日记能有所帮助，这就是抑制或压抑的概念，Pennebaker所说的另一件事是关联性，他发现的其中一件事是，那些受益最大的人 ，从这项研究受益最多的人，都使用了一些领悟性的词语或词组，也就是说到了第三天他们都开始写到："现在我知道了"或者"我明白了"，"我突然明白了"或"我意识到"，日记里提及到这些词或短语的次数最多的人，就是受益最大的人，换句话说，他们已从这经历中创造出一种关联性，他们从某些事当中得到了启示，这些事情以前也许是毫无意义的，也就是说 他们围绕着他们的经历创造出故事，这经历已不再是零散的、无关的片段，现在已经是一个连贯、完整的故事，现在我可以面对它了。仔细想想，人们通常最记得的是什么?他们最记得的是故事，为什么?你能记住一个故事？是因为它是一个整体，而同样的道理，我们想感受到我们的生命的关联性，让生命变得有意义。Pennebaker说"我们模糊且无可预知的世界的产物之一就是对不能完满成功而产生的焦虑和无法理解对一些造成痛苦困扰的缘由的简单解释。"我们自然地去寻找事件的意义和完满性 它让我们有了对生命的控制以及预知能力，这再次说明了疗法能起作用的原因，因为我们从经验中创造出关联性，这就是大屠杀造成的创伤后遗症远少于越南战争造成的创伤后遗症的原因，因为在大屠杀之后，士兵们说出了这次经历，他们围绕这次经历讲出一个故事，虽然悲惨，但还是会有关联性。和越战的经历不同，对于越战，他们只有一些零散的记忆，并没有准许自己为人，也没有这样的社会环境或其他途径让他们尽情倾诉，来说出一个他们可以应付、可以接受的故事。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
