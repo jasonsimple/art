@@ -313,82 +313,27 @@ two exercises:
 are micro tears in your cells. Now is this a bad thing? That you are doing that? Not at all! It's a good thing. Because you lift weights and then two days later, you lift these weights again. And the next week, you continue lifting these weights, and on and on, you do it for a month and two and four months and six months, and after a year of lifting weights, you begin to look like me! or maybe not, So the stress part is actually good for us. what's the problem though? when do the problems begin with stressing those muscles? It's when you lift weights, and a minute later, you lift the same weights again, and again, and again, and again, and so on and so on. what would happen to you then, if you don't take a break, whether it's a break between sessions, whether it's break, days break? what happens to you then? That's when you get injured. That's when you get hurt. That's when you actually tear or pull a muscle, That's when you become over worked, and that has psychological as well as physical effects. That's when you are over trained. **In other words, the problem is not stress, not on the physical level, nor on the psychological level, The problem is lack of recovery.** Individuals who are both successful, happy, thriving, flourishing are ones who do experience stress. However, they also pay very close attention to recovery. Just like any athlete here in this room knows that you have tapering, you have time-off before important games. you don't lift the same weights day in and day out. The same thing on the psychological level, if we don't take breaks, we will pay a price- on the physical level, we get injured; on the psychological level, we experience anxiety, ultimately, potentially depression. **stress is fine, It's good, It's exciting at times, if we also have recovery.**(传统的问题，传统的心理学家会问：“为什么这么多人压力过大？”这是非常重要的，非常好的问题，能够引出很多好的回答，但仍然不够，然后积极心理学出现了，而他们所做的是，同样问一些积极的问题，就像“那些成功的、过着健康快乐生活的人是怎么做的？”换句话说，关注起作用的事物，也就是关注尖端的芽，因为虽然很多人都压力过大，但不是所有人都这样，有一些人能够很成功，同时过着健康和快乐的生活，他们是怎么做的？他们做了些什么？他们是这样做的：人们发现，他们有一些特别的特质，有两点：第一，他们为自己建立例行公事；第二件事，也就是我现在要详细讲的，除了建立例行公事，不管是很多的例行公事，还是寥寥几件，视乎个人需要和个人差异，**除了建立例行公事，他们还特别地不仅为工作，还为恢复也建立了例行公事。**让我来解释下，我现在要说的是心理学家以前没有意识到的，因为它就像公车上的孩子一样隐藏，或者被第一个问题掩盖着，只有问了第二个问题，他们才会注意到，**他们注意到这些人将工作和恢复例行公事化，本质上他们发现的是，这是我觉得研究压力时所得的最惊人的结果，那就是问题其实不在于压力，我们找错了地方，事实上他们发现压力对我们是有好处的，压力实际上培养了我们的忍耐性、力量，并且从长远来讲让我们更快乐。**稍等片刻，这是什么意思呢？想想下面这个类比，想想运动方面，你去健身房时实际上发生了什么呢？当你去健身房，你举重时，你对你的肌肉做了什么？你在给你的肌肉压力！事实上，你其实就在... 你的细胞在偷偷流泪，请问这是坏事吗？你所做的事是坏事吗？完全不是，这是件好事，因为你举重，然后两天之后，再去举重，然后下周，你接着举重，长此以往，你举了一个月、两个月、四个、六个月，然后举了一年的重之后，你就会像我一样，或者也不会，所以压力其实对我们是有好处的，那真正的问题是什么？比如说压缩肌肉时，问题是从什么时候开始的呢？是你去举重，然后一分钟之后，你又去举重，然后不断举，不断举，不断不断地举，然后会发生的事就是，如果你不休息，不管是运动之间的休息，或者是休息几天，那么会发生什么呢？你就会受伤，那时你就会受伤，你的肌肉就会拉伤，那时你就会锻炼过度，这既是生理上的，也有心理上的影响，这时候你就是锻炼过度了。**换言之，问题不在于压力，不是生理上的问题，也不是心理上的问题，问题在于缺少恢复。**那些即成功有快乐幸福的人是会感受到压力的，然而他们很注重恢复，就好像在座的任何运动员都知道，你们会有调整期，在重要比赛前都会有休息，你们不会每天去举重，从心理层面上讲也是这样，如果我们不懂得休息，我们会付出代价，在生理层面上，我们会受伤，在心理层面上，我们会感到焦虑，最终可能导致抑郁。**压力没有关系，它是好事，如果我们能恢复，它有时甚至是很令人兴奋的。**)
 3. Tony Schwartz and Jim Loehr: **what we need to do is change our perception of our day, from being marathon runners to being sprinters, from going on and on and on, to sprinting, recovery, sprinting, recovery.** That understanding changed my life, I was a marathon runner, metaphorically- meaning at work, I used to work 14 hours a day, I loved my work, I worked extremely hard. and then i decided to get married and to have children, and i knew that things would change as a result of that, and i said:"OK, i have to compromise. i have to work less than 14 hours a day if i want to maintain a healthy relationship with my spouse and with my kids."and it disappointed me to some extent, but i have my priorities. and i made a choice. and then i met Tony Schwartz, who within a few minutes changed my perception, my understanding of what my day can and ought to look like. and when he explained to me this, it made immediate sense. I Started to implement it, and today i may not be as productive as i was when i worked for 14 hours a day, but very close to it. And i am certainly happier. and i am more creative than i was when i was a marathoner. and **here is his suggestion: One of the things that he talks about in the book, this is a ritual that i recommend and it is:have 60 to 120 minutes, so around 90 minutes, of sprint, work, concentrate, focus hard, go for it. and then after that, after you sprint, with as little distraction as possible, have 15 minutes or so of recovery.** what psychologist found is essentially we are able to sprint, to focus, according to our bio-rhythms between 60 and 120 minutes- it differs. some people are more 60; others can do it for two hours, Average: 90 minutes, After you sprint, take 15 minutes off, whether it's for meditation, listening to your favorite piece of music, whether it's for going to the gym, having lunch, having a break- and during lunch, not doing emails and being on the phone, which only adds to the stress, really relaxing with friends or by ourselves, and when we have a day that tructured with sprint, recovery, sprint, recovery, that's when we can sustain, when we have a higher levels of energy, when we get the most done and when we are happiest. this is my day now. my day comprises sprint, recovery, sprint, recovery. I'm able to get so much more done, my ideal day, work day is 90 minutes, 15minutes meditation; 90 minutes, lunch; 90 minutes, work out; 90 minutes, home with family. Actually net- i work for 6 hours a day, But in those 6 hours, I get more than i would have in 10- not to mention the fact that i am happier and more creative doing it. **The key when doing it is to maintain flexibility**, Because the ideal day for me would be that, However, there are other things you know- i travel a lot, i teach a class, during those times, let's say i am not by my computer, writing or doing research- again, because these are important things to me. so what would i have done for example is say i want ten 90 minutes sessions, the ritual of ten 90 minutes session a week. some of these 90 minutes sessions are on a flight and that's ok, some of these 90 minutes sessions are at home or in my office. But at lease ten, usually more than ten 90 minutes sessions a week. And when i have it, i am happy, i feel good. i get a lot done. also, the ritual of yoga, maintain flexibility there, so one of the things that are difficult for me is to introduce a 45 minutes or one hour session a day, and yoga is important for me, so what i started to do was breaking down yoga sessions and  now part of my 15 minutes in between is 15 minute yoga, sunset, and then the next 15 minutes is another part of yoga practice. so i break yoga into two or three sessions a day instead of one. **Again, the flexibility of ritual.****the key is to attain multi-level recovery. First recovery: on the micro level, 15 minutes meditation, one hour of gym, whatever it is, a lunch break. Middle: mezo level recovery and that is a good night sleep, sleep is important, a day off during the week. Even God needed a day off. Implemented in our lives. and finally, those vacations. Remember J.P.Morgan:"I can do the work of a year in 0 months, but not in 12." Recreation leads to creation.** and that for me works. works very well.(Tony Schwartz and Jim Loehr:"**我们所要做的是将我们对生活的理解从马拉松运动员变为短跑运动员，从不停地跑、跑、跑，变为短跑——恢复——短跑——恢复。"**这个想法改变了我的人生，我曾经是个马拉松运动员，我是指在工作上，我每天工作14小时，我热爱我的工作，非常努力，然后我决定结婚生子，我知道因此可能一切会变得不一样，然后我说：“好吧，我必须妥协，我只能一天工作少于14小时，如果我想和我的妻子以及孩子保持良好的关系的话。”某种程度上有点失望，但我有我优先的考虑，我做了这样的决定，然后我遇到了Tony Schwartz,他只用了几分钟就改变了我的观念，改变了我对我的人生应该是怎么样的理解，当他跟我说时，我立即意识到就应该是这样的，我开始运用它，而今天我可能没有一天工作14小时，那么有效率，但也十分接近了，而我显然更快乐了，我比还是个“马拉松运动员”时更有创造力。**他的建议是这样的：他在书里讲到这样一个东西，这是我推荐的一种习惯，用一到两个小时，也就是大约一个半小时来“短跑”专注地工作，精力非常集中，然后在那之后，“短跑”之后，在尽可能少分心的情况下，用十五分钟来恢复。**心理学家发现我们能够“短跑”，能够专注，按照我们的生物钟，能持续一到两个小时，每个人可能不同，有些人是一个小时，有些人可以持续两个小时，平均是一个半小时，“短跑”之后，休息十五分钟，可以是冥想，听你最喜欢的音乐，也可以是去健身，吃午饭，休息一下，但在午饭时，不收邮件，不接电话，那些只会增加焦虑，而是和朋友一起或独自完全放松，如果我们的一天是短跑——恢复——短跑——恢复，我们就能持续，能够维持高水平的精力，做更多的工作，并且更快乐。我现在的生活就是如此，我的一天就是短跑——恢复——短跑——恢复，我能做更多的工作，我理想的一天就是一个半小时的工作，十五分钟冥想；一个半小时，午餐；一个半小时，运动；一个半小时，回家和家人在一起；我一天净工作6个小时，但在这6个小时中，我能做比十个小时还多的事，更不用说我更快乐，并且更有创造性了。**这样的关键在于维持灵活性。**因为--对我来说理想的一天是这样的，然而总是有一些别的事，比如我经常出差，我要教课，在这种时候，我不在电脑旁，我要是个一个半小时的时间段，例行的每周是个一个半小时时间段，有一些这种时间段是在飞机上，这没关系，有一些时间段我在家里或者在办公室里，但每周至少要有十个，通常多于十个一个半小时的时间段，当我做到时，我很快乐，我感觉很好，我做了很多事。又比如瑜伽的习惯，维持灵活性，对我来说很困难的一件事就是每天留出45分钟或者一个小时的时间段，但瑜伽对我很重要，它使我感觉良好，所以我所做的是，拆分瑜伽的时间段，现在那15分钟的间隔有时是15分钟的瑜伽，15分钟的日落瑜伽，然后下一个15分钟做另一种瑜伽练习，所以我将瑜伽拆分成每天两到三个时间段，**又是例行公事的灵活性。**这对我来说有用，非常有效。**关键在于保证不同程度的恢复，第一种恢复：从最小的级别，15分钟的冥想，1小时健身，或者是午餐休息，随便什么；中间级别的恢复：就是睡一个好觉，我们会讲到睡觉的重要性，睡眠是对幸福、对快乐、对创造力，以及对你的记忆力的重要投资。睡眠很重要，每周都要休息一天，即使上帝也需要一天的休息，我们的生活也是这样；最后：就是假期，J.P.Morgan说过：“我可以一年工作9个月，但不能工作12个月。”****娱乐带来创造力**，记住这点。)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+# Lession 14. Too much of a good thing(过犹不及)
+1. Too much of a good thing. Quantity dose affect quality. The key is focus.(过犹不及，多则劣，少则精。专注是关键。)
+2. The Hendricks couple(Susan & Clyde Hendrick): "Love and sex are affected negatively by stress. If we can help people to simplify their lives, thus reducing their stress levels, it is very likely that people's relationships would be enriched greatly. More over, the positive aspects of their lives would be enriched accordingly."(Hendrick 夫妇说过：“爱和性与压力成反比，如果我们能帮助人们简化生活，降低压力水平，那他们的关系将会大大改善，更重要的是，他么你生活中的积极方面，也会相应得到提升。”)
+3. A research: When you have your email on while you are doing work that requires concentration, It is equivalent to taking off 10 IQ points. for comparison's sake, if you lose a whole night sleep, if you haven't slept for 36 hours, you IQ is reduced by the wquivalent of 10 points. Another point of comparison: if you smoke marijuana, if you smoke grass, your IQ's reduced by 4 points. so if you have- look i mean it's the choice- more fun, less IQ points, well but don't inhale.(一项研究：当你开着邮箱，从事需要集中注意的工作时，等于智商减少10分，整整10分。作为比较，如果你一整晚通宵，36小时不睡，也等于智商减少10点。另一项比较，如果你抽大麻，智商会减少4，所以如果你...面临选择，是要找乐子，还是降低智商，但千万别吸毒。)
+4. Tim kasser:"Meterial affluence matters very little to our well being, beyond having our basic needs met, hardly even affects our well being. however, what does affect our well being is what kasser calls 'time affluence', which is the feeling that we have time, the feeling that we can savor the things that we are doing, that we are not constantly chasing our own shadow, that we are not constantly running around and feeling stressed. and people who have time affluence in their lives that is a good predictor of well being."(Tim kasser:"物质充裕对于我们的幸福感影响不大，基本需求得到满足之外，几乎不会影响我们的幸福感，但是，的确会影响我们幸福感的是Kasser所说的'时间充裕'，这是一种感觉，我们感到时间充裕，感到我们能充分享受手头所做的事，而不是竹篮打水，做无用功，东奔西跑，压力巨大。时间充裕的人，往往容易获得幸福感。")
+5. One of the shortest- or the shortest word in the English language and yet people are so afraid of it, saying "No", whether it's saying no to people who ask you something, again saying no empathically, or saying no to opportunities, Because essentially when we are saying no to some opportunities, when we are saying no to some offers, we are saying yes to ourselves. and how do we choose what do we say no to and what do we say yes to? By simply asking what do i really, really, really want to do. simplifying- doing less, rather than more.** The key though is to reach optimum levels of simplicity.** Because we don't want to simplify too much, and go to the other extreme. the relationship between amount of work and productivity, creativity and happiness is a parabola, meaning if our amount of work is too high, that's when we experience the TBD, Too Busy Disorder. We are unhappy; we are not creative; and we are not productive. This is the burn-out. we may be productive and creative for a short while. On the other hand, if we do too little, that's also not good, and very similar consequences- we are unhappy; we are certainly not productive, and we are not creative. this is textreme procrastination(the left), this is over work(the right),what we want to find is our optimum, for each person, this is in a different place。 (英语语言中最短的，但又人人害怕的单词是：“NO”，无论是对寻求帮助的人说“不”，还是对眼前的机遇说“不”，因为我们队某些机遇说“不”，对某些提议说“不”时，其实是对自己说“是”，那如何选择对什么说“不”，对什么说“是”呢？很简单，问自己究竟想要什么。简化，宁缺毋滥。**关键就是找到最适宜的简化程度**，因为过于简化，就会走向另一个极端，工作量与效率、创造力和快乐额之间的关系是下抛物线形式，意味着如果工作量太大，就会发生TBD，即忙碌紊乱症，我们会不快乐、缺乏创造力、效率低下，这里（靠右）是精疲力竭点，也许短时间能维持效率和创造力一段时间，另一方面，如果我们什么也不做，那也不好，后果相似，我们会不快乐，没有效率，缺乏创新，这点（靠左）代表极端拖延，这点（靠右）代表过度工作，我们要发掘各自的最适宜点，每个人都不一样。)
+6. The law of gas:Even if we have very little work, it will take up all of our time. and (气体再少也能充满整个空间，工作再少也会占用我们所有时间。关键就是找到最适宜的简化程度。)
+7. **sustainalbe**:what we are talking about when we are talking about sustainalbe growth is that we take out of ourselves, we exert, we stress ourselves and replenish through recovery just enough, so that it is sustainalbe. Because if we don't replenish, then it's not sustainalbe. and then we begin to experience anxiety, depression, burn-out and so on. (**可持续增长**：我们提倡的可持续增长是指我们努力奋斗，竭尽全力，给予自己一定压力，然后通过充分的休整得以恢复，这才是可持续。因为如果不恢复，那就无法持续，就会出现焦虑、抑郁、疲惫等情绪。)
+
+## Lession14. Procrastination(拖延症)
+1. Now procrastination is associated with lower levels of happiness, weakened physical immune system, high levels of stress and could also lead to depression.(拖延症与不快乐、生理免疫系统脆弱、压力过大等等都有关联，可能会导致抑郁。)
+2. The reseach is done at the University of Carleton in Canada where they have an actual procrastination reseach group. Here some of the important results for overcoming procrastination. First, most important one, simple, easy to implement and it works, It's what they call "The 5 minute take-off". **one of the things they found with, just about all procrastinators is that they have a misunderstanding of what it takes to act. Procrastinators, the world over, think that in order to act, they first need to be inspired.** I have to feel the vibes, before i start the EC 10 problem set. I really have to be inspired before i write this paper for Lit and Arts. But you know what? That's not how it works, It's not about first changing our attitude,i.e. becoming inspired and then acting. **It usually works the other way around. we first need to start acting, behavior that will then affect our attitude. Because very often once we start, we are on a roll,** or sometimes, a few times, during let's say the 90 minutes sprint, we have to restart the 5 minute. I don't know if you have moticed this, I am extremely, extremely passionate about positive psychology. I love positive psychology. But you know, sometimes when i get up in the morning, and i write something about positive psychology or prepare a lecture on positive psychology, or read positive psychology, sometimes i don't feel like starting. this is actually a very big surprise for my wife.Yes, exactly! Because i know the 5 minute take-off, and sometimes within a 90 minute session, I have to do another 5 minute take-off, because my energy levels are drained. so either take time off to recover, or if i think that is just procrastination, **I say it's OK. for 5 minutes, just push. and very often 5 minutes start an upward spiral. not through the mind, Not through the heart, Through action.****The 5 minute take-off probably the most useful technique for overcoming procrastination. Just do it-- in other words.**(加拿大卡尔顿大学拖延症心理研究小组的研究：如何克服拖延？首先，最重要的一点，很简单，容易实践且有效，他们称之为“5分钟起步”，**他们发现所有拖延者都有一个共同点：他们对行动的要求有所误解，全世界的拖延者都以为，要有所行动，必须先受到激励。**我必须感受到共鸣，才能开始编写经济学10号课程的题库。我必须有所灵感，才能下笔写文学艺术论文。但事实并不是这样，**第一步并不是改变态度，即受到激励，然后行动。恰恰相反，要先开始行动，行动会慢慢地影响我们的态度，因为通常行动开始后，我们会有惯性。**或者有时候，比如在90分钟冲刺中，我们需要重新5分钟起步。我不知道你们有没有注意到，我非常非常热衷积极心理学，我喜欢积极心理学，但有时候，我早上起床，写关于积极心理学的文章，准备积极心理学讲座，或者阅读积极心理学文章，有时候我完全不在状态，这让我太太大吃一惊，是的，没错，因为我了解5分钟起步，有时候在90分钟时间段里，我不得不再做一次5分钟起步，因为我感到精力不支，所以要么花时间休整，要么我只是有拖延情绪。**我说没事，就5分钟，坚持住就行。这5分钟往往会让我产生一个向上的螺旋，不是通过思想，不是通过心灵，而是通过行动。****5分钟起步可能是克服拖延最有用的技巧了，换句话说，就是放手去做。**)
+3. Rewards are certainly legit and important.(奖励当然很重要。)
+4. Go public, Throw your knapsack over the wall, Tell people what you are going to achieve, Because i went public with it, i threw my knapsack over the wall,  and i had to start working, whether i liked it or not, and that helped me overcome procrastination, because i knew that i wanted to teach at some point. But when i went public with it, In a sense, it "forced" me to do it.(公布出去，破釜沉舟，告诉大家你的目标。因为我公布了目标，破釜沉舟，不得不着手开工，无论我是否喜欢，这帮助我克服了拖延，因为我知道自己想开设专题讨论会,一旦对外公布，某种意义上，我就被迫去做了。)
+5. The best predictor, for example of maintaining an exercise regime is doing it with other people. Now this is not right of everyone, some people exercise is something that they want to do by themselves, and that's OK, However, for most people, doing with other people actually helps. It also helps to write down-- this is a commitment,  write down goals. Divide and conquer, Break down the achievement, Remember Langer's research? Write these things down, Make a list. It actually helps most people. And finally, permission to recreate. what that means is give yourself permission to be human; give yourself permission to procrastinate at times as well; give yourself permission to recover. you are not a machine, we are not machines. we need to understand the constraint of you of nature. Because if we don't understand it, if we don't respect nature, nature is not going to respect us, and we are going to pay a price, in terms of our productivity, our creativity as well as our happiness-- the ultimate currency.(最好的预言者，比如坚持训练课程的方法之一就是和其他人一起进行，注意，这可能不是每个人都适用，有些人喜欢一个人进行训练，这也完全没问题，但是对大多数人来说，与别人一起进行会有所帮助。书面写下也很有用——这等于建立了契约，把目标写下来，分阶段进行，各个击破，还记得Langer的研究吗？把目标写下来，列一张表，对大多数人来说很有用。最后一点，允许自己娱乐消遣；准许自己为人；有时候拖延一下也未尝不可；允许自己休整；你不是机器，我们都不是机器，我们需要了解能力的范畴，否则就是违背自然，自然就会报复我们，让我们付出代价，效率降低，失去创造力与幸福感，也就是我们的终极货币（幸福感）。)
+6. 推荐视频，关于拖延：《Here and Now》-- Ellen DeGeneres.
+
+# Lession 15. Perfectionism(完美主义)
+1. Elbert Hubbard:"The greatest mistake a man can make is to be afraid of making one."(Elbert Hubbard:"一个人能犯的最大错误就是害怕犯错。")
+2. George Eliot:"The important work of moving the world forward does not wait to be done by perfect men."(George Eliot:“推动世界前进的重任并不是由完人来进行的。”)
+3. Psychological safety:Psychological safety is the feeling, the experience, the space that you feel in your workplace, in your organization, where you are safe talking about errors and mistakes, where you feel safe falling down and getting up again. and these organizations with their own psychological safety, they performed better. Organizations with their psychological safety, with theri employees don't or are not afraid of whistle blowing, or not afraid of falling down of making mistakes, these organizations are significantly more successful. these are learning organizations. with the employees constantly learn and grow, or you learn from your mistakes, and then the next time you are able to do better. very significant, very important research,  whether it's for leaders, whether it's for parents-- would you have this psychological safety for your kids while they feel comfortable talking to you about things that they did not do well, about failures. **because if they do feel comfortable, they are much less likely to enter into this perfectionistic fear of failure, and they are much more likely to be happier as well as successful.**(心理安全概念：心理安全是一种感觉、经历、空间，让你感觉可以在办公室地点，在组织内安全地讨论错误与过失，让你觉得摔倒了也能安全地站起来。有心理安全的组织会表现地更好，()证明了有心理安全的团队组织，他们的雇员不会害怕告密，也不会害怕摔倒、犯错，这些组织更为成功，它们是学习型组织，雇员不断地学习成长，从错误中学习，下一次就能做的更好。意义重大，影响深远的研究，无论是对领导者，还是家长——你们会不会为自己的孩子营造心理安全，让他们毫无约束地告诉你他们做的不好、失败的事，**因为如果他们愿意跟你说，他们就不容易进入害怕失败的完美主义，而会更快乐，更成功。**)
+4. Thomas said:"Fire you? Fire you? I've just invested a million dollars in your education, and i am going to fire you?" "but just one more thing, if you make the same mistake again, I'm going to fire you."(Thomas 说到"解雇你？ 解雇你？我刚为你的教育投入了一百万美元，现在我要炒了你？" "还有一件事，如果你再犯同样的错误，我会炒了你。")
+5. If you want to increase your success rate, double your failure rate.(如果你想提高成功率，就要将失败率翻倍。)
+6. Jane Klam's reseach: what she found was the most successful people, people who have been able to persist are people who have failed on average 5 times before, so they have been on 5 diets and haven't succeeded, The fifth one, or the sixth one I am successful and i am able to sustain it, the same with the exercise regime. learn to fail or fail to learn.(Jane Klam 的研究：她发现最成功的、有毅力坚持下来的人，都平均经历过5次失败，也就是说他们减肥5次都没有成功，到了第五次、或者第六次才能成功并维持住的，运动也是如此。学会失败，从失败中学习。)
