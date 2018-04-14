@@ -31,3 +31,21 @@
 # <center>《后赤壁赋》--苏轼</center>
 是岁十月之望， 步自雪堂， 将归于临皋。 二客从予过黄泥之坂。 霜露既降， 木叶尽脱， 人影在地， 仰见明月， 顾而乐之， 行歌相答。 已而叹曰： “有客无酒， 有酒无肴， 月白风清， 如此良夜何！” 客曰： “今者薄暮， 举网得鱼， 巨口细鳞， 状如松江之鲈。 顾安所得酒乎？” 归而谋诸妇。 妇曰： “我有斗酒， 藏之久矣， 以待子不时之需。” 于是携酒与鱼， 复游于赤壁之下。 江流有声， 断岸千尺； 山高月小， 水落石出。 曾日月之几何， 而江山不可复识矣。 予乃摄衣而上， 履谗①岩， 披蒙茸， 踞虎豹， 登虬龙， 攀栖鹘之危巢， 俯冯夷之幽宫。 盖二客不能从焉。 划然长啸， 草木震动， 山鸣谷应， 风起水涌。 予亦悄然而悲， 肃然而恐， 凛乎其不可留也。 反而登舟， 放乎中流， 听其所止而休焉。 时夜将半， 四顾寂寥。 适有孤鹤， 横江东来。 翅如车轮， 玄裳缟衣， 戛然长鸣， 掠予舟而西也。
 须臾客去， 予亦就睡。 梦一道士， 羽衣蹁跹， 过临皋之下， 揖予而言曰： “赤壁之游乐乎？” 问其姓名， 俯而不答。 “呜呼！ 噫嘻！ 我知之矣。 畴昔之夜， 飞鸣而过我者， 非子也邪？” 道士顾笑， 予亦惊寤。 开户视之， 不见其处。
+
+# <center> I Carry Your Heart With Me  --BY E. E. CUMMINGS </center>
+
+<center>I carry your heart with me(我将你的心带在身上)</center>
+<center>I carry it in my heart(用我的心将它妥善包藏)</center>
+<center>I am never without it(天长日久也不会遗忘)</center>
+<center>Anywhere I go,you go,my dear(无论我前往何方 都有你伴我身旁)</center>
+<center>And whatever is done by only me is your doing my darling(即便我单独成事 那也是出于爱人 你的力量)</center>
+<center>I fear no fate(面对命运我从不恐慌)</center>
+<center>For you are my fate,my sweet(只因你就是我命运的方向)</center>
+<center>I want no world,for,beautiful,you are my world,my true(世间万物于我皆如浮云 只因你在我眼中就是天地四方)</center>
+<center>Here's the deepest secret no one knows(这秘密无人知晓 在我心底埋藏)</center>
+<center>Here is the root of the root and the bud of the bud(它是根之根 芽之芽 天之天)</center>
+<center>and the sky of the sky of a tree called life(都是生命之树所生长)</center>
+<center>which grows higher than the soul can hope or mind can hide(这大树高于心灵的企望 也高于头脑的想象)</center>
+<center>It's the wonder that's keeping the stars apart(是造化的奇迹 能够隔离参商)</center>
+<center>I carry your heart(我将你的心带在身上)</center>
+<center>I carry it in my heart(用我的心将它妥善包藏)</center>
