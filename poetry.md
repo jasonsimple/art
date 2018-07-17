@@ -49,3 +49,8 @@
 <center>It's the wonder that's keeping the stars apart(是造化的奇迹 能够隔离参商)</center>
 <center>I carry your heart(我将你的心带在身上)</center>
 <center>I carry it in my heart(用我的心将它妥善包藏)</center>
+
+# <center>《定风波·常羡人间琢玉郎》</center>
+<center>苏轼</center>
+<center>常羡人间琢玉郎，天教吩咐点酥娘。自作清歌传皓齿，风起，雪飞炎海变清凉。</center>
+<center>万里归来年愈少，微笑，笑时犹带岭梅香。试问岭南应不好，却道，此心安处是吾乡。</center>
