@@ -1,7 +1,6 @@
-# top
+[top]
 
-# <center>《春江花月夜》</center>
-<center>张若虚
+# <center>《春江花月夜》---张若虚</center>
 春江潮水连海平，海上明月共潮生。
 滟滟随波千万里，何处春江无月明！
 江流宛转绕芳甸，月照花林皆似霰；
@@ -50,7 +49,6 @@
 <center>I carry your heart(我将你的心带在身上)</center>
 <center>I carry it in my heart(用我的心将它妥善包藏)</center>
 
-# <center>《定风波·常羡人间琢玉郎》</center>
-<center>苏轼</center>
-<center>常羡人间琢玉郎，天教吩咐点酥娘。自作清歌传皓齿，风起，雪飞炎海变清凉。</center>
+# <center>《定风波·常羡人间琢玉郎》--->苏轼</center>
+<center>常羡人间琢玉郎，天应乞与点酥娘。自作清歌传皓齿，风起，雪飞炎海变清凉。</center>
 <center>万里归来年愈少，微笑，笑时犹带岭梅香。试问岭南应不好，却道，此心安处是吾乡。</center>
