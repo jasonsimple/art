@@ -1,0 +1,4 @@
+#Week 1.  Introduction
+## 1.  什么是博弈论：
+1. Game Theory is a way of thinking  about strategic interactions between self-interested people. for thinking about  how self-interested participants would behave in strategic interactions.  And also, thinking about how those interactions should be structured in order to lead to good outcomes.（博弈论是研究两个自利对象在游戏中具有竞争性质现象的理论, 研究自利者在决策相互影响时是如何行为的， 以及应该如何结构化这些形为，以达到利益最大化。）
+ A game in general is any interaction between two or more people where the  outcomes of the interaction depend on what everybody does and everybody has  different levels of happiness for the different outcomes.(通俗来说，博弈就是两或多人间的互动，其中互动的结果取决于每个人的行为，并且每个人对于不同的结果都会有不同的愉悦度。)
