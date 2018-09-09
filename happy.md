@@ -525,3 +525,6 @@ For example, a person writing a book who has high dependent self-esteem is prima
 	
 8. How we cultivate independent as well as unconditional self-esteem? (如何培养独立自尊及无条件自尊？)
 9. How we can enhance our levels of self-esteem.(如何提高自尊水平？)
+
+# Lesson 22. Self-esteem and self-actualized(自尊与自我实现)
+1. when we experience a sense of independent self-esteem We are much calmer when we don't constantly have to prove ourselves to others It is enervating to constantly be on the guard Is this person gonna like me? How do I gain their validation? We are much calmer when we say "Let me express myself And yes it may hurt me It will hurt me, if they don't like me That's OK. I'm resilient I'm strong, I can deal."(当我们有独立型自尊时，我们的幸福感会更高，我们会更平静，我们不会不停地向别人证明自己，总是处于警惕状态是一件很劳心劳力的事。这个人会喜欢我吗? 我怎么得到他们的认同?当我们这样想时，我们会更平静："让我表达自己。没错，我也许会受伤害，如果他们不喜欢我，我会伤心，没问题，我承受得住，我很坚强 我可以接受")
