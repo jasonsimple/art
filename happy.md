@@ -50,6 +50,7 @@
 
 9. Note that it is not about helping ourselves and others become happy, it is about becoming happier. happiness is not a binary either-or、zero-one, happiness resides on a continum.
 （不是变快乐，而是变的更快乐，快乐从来不是非此即彼）
+
 # Lesson 2. Wy we need positive psychology?(为什么要学习积极心理学？)
 1. resilience:A class of phenomena characterized by patterns of positive adaptation in the context of significant adversity or risk.
 	(心理弹性：一种现象，特征是积极适应的模式，即使是面对非常不利或危险的环境)
@@ -75,6 +76,7 @@
 	（我们看见我们所盼望的，因此我们亦错过了许多我们没有期盼之物——尽管她们亦在那里…… 我们在这世界的体验，被我们的关注点(所在的位置)深深地影响）
 
 7. I will take action and action will increase our level of confidence, and then more hope and optimism is a result.
+
 # Lesson 3. IS happiness a random phonomano?(幸福是一种随机现象吗？)
 1. from a passive victim to an active agent.(从消极的受害者变成积极的作用者，yes,it's difficult, it's tough, it's unfair, However, it's your responsibility.)
 
