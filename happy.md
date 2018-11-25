@@ -1,5 +1,4 @@
 % Positive Psychology
-% LiuFeng
 
 
 ![image](http://ws3.sinaimg.cn/large/006H1aMCly1fvodtxu9svj30e20m84p1.jpg)
